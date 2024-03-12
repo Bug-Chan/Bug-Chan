@@ -6,7 +6,7 @@
 - Instagram: https://www.instagram.com/bugarimm/
 - Facebook: https://www.facebook.com/bugarimm 
 - Linkedin: https://www.linkedin.com/in/bugarim/
-}
+- }
 - 😄 Pronouns: He/him
 - ⚡ Fun fact: Since I was little, I've always liked using the computer and dismount electronic toys, and nowadays I realize that these games are becoming my daily routine.
 
